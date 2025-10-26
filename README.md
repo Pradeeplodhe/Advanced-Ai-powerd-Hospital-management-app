@@ -1,0 +1,1 @@
+# Advanced-Ai-powerd-Hospital-management-app
